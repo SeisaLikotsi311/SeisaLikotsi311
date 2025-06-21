@@ -12,6 +12,6 @@ You can click the Preview link to take a look at your changes.
 
 ✨ I’m looking to collaborate on projects related to FinTech, web development, and Mobile app development. I'm eager to work with like-minded individuals who are passionate about creating innovative solutions.
 
-📫 How to reach me: You can reach out to me via email at [seisalikotsi@gmail.com] or connect with me on LinkedIn [https://www.linkedin.com/in/seisa-likotsi-10b6b0261/].
+📫 How to reach me: You can connect with me on LinkedIn [https://www.linkedin.com/in/seisa-likotsi-10b6b0261/].
 
 😄 Pronouns: He/Him
